@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JOHN3604h
 - 👀 I’m interested in Crypto
 - 🌱 I’m currently learning web developing 
-- 💞️ I’m looking to collaborate on my current project (if you know something on python,the blockchain,securityspecialist...contact me😊)
+- 💞️ I’m looking to collaborate on my current project (if you know something on python,the blockchain,security specialist...contact me😊) 
 - 📫 How to reach me :petitboisjohncarry@gmail.com
 - 😄 Pronouns: i don't care just come help me 😂
 - ⚡ Fun fact: Humans glow in the dark
